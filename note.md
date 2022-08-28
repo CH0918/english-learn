@@ -1,0 +1,3 @@
+- 在酒店 at the hotel
+- 在一个小城市 in a small city
+- 网络 the internet
