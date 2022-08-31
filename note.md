@@ -7,3 +7,11 @@
 
 - 加 xxx 用 with
 - a cup of coffee with milk
+
+- like to do sth 喜欢做什么
+- like to play tennis
+- like to play baseball
+- like to cook
+
+- with 五官，某人有什么样的五官
+- the woman with blue eye
